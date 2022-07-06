@@ -1,2 +1,0 @@
-# portafolio
-PORTAFOLIO DE INFORMACION
